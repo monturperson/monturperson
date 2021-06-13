@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @montur
+- 👀 I’m interested in robots
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on baritone
+- 📫 How to reach me idk.. discord? montur#0001
